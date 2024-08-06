@@ -1,0 +1,4 @@
+- Affan Al-Habibi. 
+- Freshman @ Mechanical and Aerospace Engineering Faculty, Bandung Institute of Techonology (FTMD ITB).
+- Interested in mechanics, aerodynamics, and programming. 
+- insta : @aalhbibie
